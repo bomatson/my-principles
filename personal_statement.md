@@ -6,7 +6,7 @@
 
 *   Follow through and be deliberate
 
-*   Be a good friend. Don't try to be a good friend
+*   Be a good friend. Don't _try_ to be a good friend
 
 *   Character first, occupation second
 
